@@ -4,7 +4,6 @@ For Our Teachers
 
 Check this Drive folder for App Demo and Screenshots https://drive.google.com/drive/folders/1lr4ke_LP2vnoqoPlGrbsDRDjfNeRs_zr?usp=sharing
 
-Demo Video:https://youtu.be/6DVnHojoGnQ
 
 Why?
 Our teachers are facing a great issue during Covid-19, Most of the schools started online classes and in most cases, a single teacher wants to spend many hours for different classes. Speaking too much time they will be tired.So..
